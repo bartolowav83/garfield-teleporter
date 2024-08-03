@@ -1,6 +1,6 @@
-# Garfield Mod Menu Overview.
+# Garfield Mod Menu Overview. ✨
 
-## FAQ
+## FAQ 📜
 
 #### What is Garfield Mod Menu?
 
