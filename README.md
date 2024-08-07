@@ -2,7 +2,7 @@
 
 ## WARNING ⚠
 
-Im the owner of the account @garfield-teleporter ; I made this warning to say that the project continues at https://www.github.com/garfield-teleporter and not there. 
+This mod menu for Roblox has been discontinued due to a DMCA from ROBLOX Corporation.
 
 Have a great day or night.
 ### BartoloWaV
